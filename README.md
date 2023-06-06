@@ -2,7 +2,7 @@
 
 You don't need any clan to use this hack.
 
-Discord: **MR.HACKER_ATTA#5989** | Discord Server(https://discord.gg/WaRDA3bY)
+Discord: **MR.HACKER_ATTA#5989** | Discord Server(https://discord.gg/NPSGkFvTY3)
 
 ![Cyclone](https://github.com/T0HBA/shizoval/raw/main/Cyclone.png)
 
